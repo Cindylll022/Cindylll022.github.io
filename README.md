@@ -1,2 +1,0 @@
-# Cindy Li
-wow
